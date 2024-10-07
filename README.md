@@ -1,4 +1,4 @@
-# Videos That Bring Joy
+# Videos and Image That Bring Joy
 Here is a list of Videos (or shorts, since most of that is on youtube are shorts now apparently) that bring joy (and an image because its adorable):
 
 ## Videos
