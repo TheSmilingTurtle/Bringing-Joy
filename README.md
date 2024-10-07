@@ -1,6 +1,7 @@
 # Videos That Bring Joy
-Here is a list of Videos (or shorts, since most of that is on youtube are shorts now apparently) that bring joy:
+Here is a list of Videos (or shorts, since most of that is on youtube are shorts now apparently) that bring joy (and an image because its adorable):
 
+## Videos
 ### [YMCA on the beach](https://youtube.com/shorts/rujdEa3MVYo?si=Qynm8qDvqXxZMyv0)
 https://youtube.com/shorts/rujdEa3MVYo?si=Qynm8qDvqXxZMyv0
 
@@ -51,3 +52,6 @@ https://youtu.be/tO_AhiZGR5c
 
 ### [Dwarf Radio](https://youtube.com/shorts/_g34xRMb8zQ)
 https://youtube.com/shorts/_g34xRMb8zQ
+
+## Images
+### [I cast a little shadow with my hat](https://www.reddit.com/r/wizardposting/comments/1f6g535/a_most_dastardly_wizard/)
