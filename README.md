@@ -38,8 +38,8 @@ https://youtu.be/_C1FZ4HtzGY?si=UIH6G-3RNg8h545B
 https://youtu.be/bnAQQEHtoW0?si=kt3zHo9yyLCS0mEk
 
 
-### [Out the window](https://youtube.com/shorts/Qfe2FLsq5zo?si=Ja2tPMBfWr7z31a_)
-https://youtube.com/shorts/Qfe2FLsq5zo?si=Ja2tPMBfWr7z31a_
+### [Out the window](https://youtube.com/shorts/Qfe2FLsq5zo?si=Ja2tPMBfWr7z31a)
+https://youtube.com/shorts/Qfe2FLsq5zo?si=Ja2tPMBfWr7z31a
 
 
 ### [Princess partyyyyyyy](https://youtube.com/shorts/_aUk0dGj9bE?si=8vscnxUoP2hU-KnB)
