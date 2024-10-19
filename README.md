@@ -73,3 +73,6 @@ https://youtube.com/shorts/_g34xRMb8zQ
 ## Images
 ### [I cast a little shadow with my hat](https://www.reddit.com/r/wizardposting/comments/1f6g535/a_most_dastardly_wizard)
 https://www.reddit.com/r/wizardposting/comments/1f6g535/a_most_dastardly_wizard
+
+### [Young Leshen](https://www.reddit.com/r/witcher/comments/1g6osqo/young_leshen_tough_life/?share_id=UcLsq-ebVJAkdOFrKqk8s)
+https://www.reddit.com/r/witcher/comments/1g6osqo/young_leshen_tough_life/?share_id=UcLsq-ebVJAkdOFrKqk8s
