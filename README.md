@@ -1,5 +1,5 @@
-# Videos and Image That Bring Joy
-Here is a list of Videos (or shorts, since most of that is on youtube are shorts now apparently) that bring joy (and an image because its adorable):
+# Videos and Images That Bring Joy
+Here is a list of Videos (or shorts, since most of that is on youtube are shorts now apparently) that bring joy (and an image or two because they are adorable):
 
 ## Videos
 ### [YMCA on the beach](https://youtube.com/shorts/rujdEa3MVYo?si=Qynm8qDvqXxZMyv0)
