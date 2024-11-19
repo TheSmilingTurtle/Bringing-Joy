@@ -70,6 +70,14 @@ https://youtu.be/tO_AhiZGR5c
 https://youtube.com/shorts/_g34xRMb8zQ
 
 
+### [Only one Bar](https://youtu.be/IDaCrTHClEs)
+https://youtu.be/IDaCrTHClEs
+
+
+### [KULIKITAKA](https://youtube.com/shorts/B2fjwyq-hfQ)
+https://youtube.com/shorts/B2fjwyq-hfQ
+
+
 ## Images
 ### [I cast a little shadow with my hat](https://www.reddit.com/r/wizardposting/comments/1f6g535/a_most_dastardly_wizard)
 https://www.reddit.com/r/wizardposting/comments/1f6g535/a_most_dastardly_wizard
